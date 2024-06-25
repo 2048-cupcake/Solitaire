@@ -1,6 +1,6 @@
 # Solitaire
 
-Exploring the World of Solitaire: From Classic to Spider Solitaire
+Exploring the World of Solitaire: From Classic to Spider Solitaire   <a href="https://solitaire-gameonline.blogspot.com" target="_blank">Play Now</a>
 
 Solitaire, a timeless card game, has captivated players for generations. Its simplicity and strategic depth make it a favorite pastime for many. Among the vast array of Solitaire games, Classic Solitaire and Spider Solitaire stand out as particularly beloved variations. Let's dive into these two popular versions and explore the broader landscape of Solitaire games available today.
 
